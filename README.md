@@ -4,7 +4,7 @@
 
 I have a degree in mechanical engineering, but on the road on developer life since August/2021.
 
-If you want to talk to me, my interests are **Surf** :surfer:, **beach tennis** :tennis:, **rave parties** and **electronic music** :sunglasses:, **fantasy books** :books: (a Patrick Rothfuss fan) ,**RPG games** :star2:,  **NFTs** in general :monkey_face: (... what do you think about Metaverse ?) and of course, **programming** :computer: . But i'm open to discover new ideas, so in short we can talk about anything :stuck_out_tongue_closed_eyes:
+If you want to talk to me, my interests are **Surf** :surfer:, **beach tennis** :tennis:, **rave parties** and **electronic music** :sunglasses:, **fantasy books** :books: (a Patrick Rothfuss fan) ,**RPG games** :star2:,  **Crypto** in general :coin: and of course, **programming** :computer: . But i'm open to discover new ideas, so in short we can talk about anything :stuck_out_tongue_closed_eyes:
 
 <a href="https://www.linkedin.com/in/rafaelnakashima" alt="linkedin" target="_blank">
 <img src="https://img.shields.io/badge/LinkedIn-%230077B5.svg?&style=flat-square&logo=linkedin&logoColor=white">
